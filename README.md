@@ -1,1 +1,1 @@
-# manguberdi212.github.io
+# manguberdi212.github.io/universitet/
